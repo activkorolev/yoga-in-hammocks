@@ -9,5 +9,4 @@
 
 Йога в гамаке или полет в воздухе [йога в гамаках. Королев Фитнес студияАКТИВ](http://activf2017.blogspot.com/)
 
-
-![ Йога в гамаке или полет в воздухе Королев Фитнес студия АКТИВ]( https://1.bp.blogspot.com/-n502raxYzXU/Wru4YXQKLWI/AAAAAAAAAj8/FN6tudwTn4k0z33xyFmHzTV6QGJ35McTgCKgBGAs/s320/IMG_20171218_132221_270-ANIMATION.gif)
+![ Йога в гамаке или полет в воздухе Королев Фитнес студия АКТИВ](https://1.bp.blogspot.com/-n502raxYzXU/Wru4YXQKLWI/AAAAAAAAAj8/FN6tudwTn4k0z33xyFmHzTV6QGJ35McTgCKgBGAs/s320/IMG_20171218_132221_270-ANIMATION.gif)
